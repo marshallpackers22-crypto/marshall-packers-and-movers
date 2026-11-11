@@ -6,10 +6,6 @@ About Marshall Packers and Movers
 
 Marshall Packers and Movers provides professional packing, moving, household shifting, office relocation and international relocation solutions in Pakistan. We focus on careful handling, secure transportation and reliable customer service for residential and commercial moves.
 
-Official Website
-
-https://marshallpackers.com/
-
 Our Services
 
 - House Shifting Services
